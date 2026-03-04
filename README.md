@@ -1,1 +1,1 @@
-# Kichidere.github.io
+# Kichidere.github.io is cool
